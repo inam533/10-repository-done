@@ -8,3 +8,4 @@ im also from whats your today plan
 my plan is simple and whu 
 yeah i wanna more edu
 thats sound good 
+how was your day 
